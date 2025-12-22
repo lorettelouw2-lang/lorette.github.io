@@ -1,1 +1,1 @@
-# lorette.github.io
+# AskFritz.co.za
